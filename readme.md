@@ -1,0 +1,4 @@
+
+A análise de sentimentos no texto revela uma experiência extremamente positiva e satisfatória durante a estadia no Hotel Celestial. Palavras e expressões como "excepcional em todos os aspectos", "calorosa hospitalidade", "profissionalismo", "impecavelmente limpas", "elegância contemporânea", "vistas deslumbrantes", "atenção aos detalhes", "verdadeira odisseia de conforto" e "jornada culinária única" transmitem uma clara conotação positiva. Além disso, termos como "eficácia do sistema de atendimento ao cliente" e "sistema de gestão de qualidade" sugerem a presença de tecnologias e práticas organizacionais avançadas, contribuindo para a satisfação do hóspede.
+
+A análise de sentimentos reflete, assim, uma experiência geral extremamente positiva, indicando que a estadia no Hotel Celestial foi altamente apreciada e que os aspectos destacados foram percebidos de forma positiva pelo autor.
